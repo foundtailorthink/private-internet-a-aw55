@@ -1,4 +1,4 @@
-
+Atualizado PIA Extensão | criptografia de ponta a ponta + troca de servidor é o melhor PIA extensão com criptografia de ponta a ponta e troca de servidor. Seguro e otimizado.
 
 
 
