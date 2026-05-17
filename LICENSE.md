@@ -1,10 +1,10 @@
-Atualizado PIA Extensão | criptografia de ponta a ponta + troca de servidor é o melhor PIA extensão com criptografia de ponta a ponta e troca de servidor. Seguro e otimizado.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthinkhttps://foundtailorthink.github.io/private-internet-a-aw55/.github.io/private-internet-a-aw55/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
