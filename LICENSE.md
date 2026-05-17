@@ -1,10 +1,10 @@
-Updated Private Internet Access (PIA) Extension | end-to-end encryption + server switching is the best Private Internet Access (PIA) extension with end-to-end encryption and
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.github.io/private-internet-a-aw55/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
